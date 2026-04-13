@@ -1,9 +1,15 @@
-join the community! 
+join the community server!
 
-dsc.gg/HackSense
+https://dsc.gg/hacksense
 
+https://dsc.gg/hacksensetop
 
-dsc.gg/HackSenseXYZ
+https://dsc.gg/hacksensexyz
 
+https://dsc.gg/hacksensegov
 
-dsc.gg/HackSenseTop
+https://dsc.gg/hacksensecc
+
+https://dsc.gg/hacksenselol
+
+https://dsc.gg/hacksensereborn
