@@ -1,3 +1,5 @@
+join the community! 
+
 dsc.gg/HackSense
 
 
