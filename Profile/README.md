@@ -1,5 +1,3 @@
-discontinued as of now. 
-
 join the community server!
 
 https://dsc.gg/hacksense
